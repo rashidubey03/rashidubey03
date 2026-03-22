@@ -8,4 +8,4 @@ Hi there 👋 I'm Rashi
 
 📌 Fun fact: I debug better with chai ☕ and cinematic chaos 💅
 
-![aesthetic coding](https://media.giphy.com/media/13HgwGsXF0aiGY/giphy.gif)
+![girl fire vibe](https://media.giphy.com/media/l0HlBO7eyXzSZkJri/giphy.gif)
